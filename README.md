@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kung8kungkung
+- 👋 Hi, I’m Ed from Taiwan
 - 💦 I’m interested in building fun stuff ⭐️
 
 <!---
